@@ -1,4 +1,4 @@
-Com certeza, Enzo. Aqui está um resumo direto com as informações que você pediu, ideal para uma apresentação ou um documento rápido sobre o projeto.
+
 
 ---
 
